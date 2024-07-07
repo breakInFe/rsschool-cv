@@ -38,7 +38,7 @@ your brain to be in tone!
 
 - HTML Academy - 2020 interactive courses
 
-## **EXPIRIENCE**
+## **EXPERIENCE**
 
 _Section under reconstruction ..._
 
